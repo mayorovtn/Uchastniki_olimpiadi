@@ -1,1 +1,0 @@
-# Uchastniki_olimpiadi
